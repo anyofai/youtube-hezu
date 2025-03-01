@@ -87,8 +87,6 @@ YouTube Premium的官方价格确实不便宜。以美区为例，个人会员�
 
 <p align="center"><a href="https://www.naifeistation.com?invite=3wLPME">前往星际放映厅官网</a></p>
 
-****
-
 ## 各大YouTube拼车平台对比
 
 在前面的章节中，我们详细介绍了银河录像局和星际放映厅两家YouTube Premium合租平台的情况。现在，让我们对这两家平台进行全面对比，帮助你根据自己的需求做出最适合的选择。
