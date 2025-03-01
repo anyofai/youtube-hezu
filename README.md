@@ -47,7 +47,7 @@ YouTube Premium的官方价格确实不便宜。以美区为例，个人会员�
 ![最新YouTube Premium合租指南：油管Youtube家庭会员拼车平台推荐：银河录像局](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/youtube-premium-1.jpg)
 
 * 银河录像局官网：<a href="https://nf.video/BTgSc">https://nf.video/BTgSc</a>
-* 银河录像局提供的其他服务：未降智ChatGPT、**满血版DeepSeek**、马斯克Grok-3、谷歌Gemini-2 Pro
+* 银河录像局提供的其他服务：镜像版ChatGPT Plus（含**满血版DeepSeek**、马斯克Grok-3、谷歌Gemini-2 Pro）
 * 银河录像局支付方式：支付宝
 * 银河录像局优惠码（九折）：**ANYOFAI**
 * 银河录像局价格（年付套餐）：折后18元/月
