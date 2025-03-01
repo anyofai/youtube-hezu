@@ -42,6 +42,8 @@ YouTube Premium的官方价格确实不便宜。以美区为例，个人会员�
 
 ### 油管合租首选：<a href="https://nf.video/BTgSc">银河录像局</a>
 
+![最新YouTube Premium合租指南：油管Youtube家庭会员拼车平台推荐：银河录像局](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/youtube-premium-1.jpg)
+
 * 银河录像局官网：<a href="https://nf.video/BTgSc">https://nf.video/BTgSc</a>
 * 银河录像局提供的服务：
 * 银河录像局支付方式：支付宝
@@ -65,6 +67,8 @@ YouTube Premium的官方价格确实不便宜。以美区为例，个人会员�
 ****
 
 ### 油管合租备选：<a href="https://www.naifeistation.com?invite=3wLPME">星际放映厅</a>
+
+![最新YouTube Premium合租指南：油管Youtube家庭会员拼车平台推荐：星际放映厅](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/youtube-premium-2.png)
 
 * 星际放映厅官网：<a href="https://www.naifeistation.com?invite=3wLPME">https://www.naifeistation.com?invite=3wLPME</a>
 * 星际放映厅支付方式：支付宝
