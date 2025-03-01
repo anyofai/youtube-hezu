@@ -60,6 +60,10 @@ YouTube Premium的官方价格确实不便宜。以美区为例，个人会员�
 
 总的来说，如果你正在寻找一个可靠、价格实惠且服务全面的YouTube Premium合租平台，银河录像局绝对是首选。不仅价格低至每月18元(使用优惠码后)，而且服务稳定、售后及时，还能满足你其他数字服务的合租需求，是一站式解决各类会员合租问题的理想平台。
 
+<p align="center"><a href="https://nf.video/BTgSc">前往银河录像局官网</a></p>
+
+****
+
 ### 油管合租备选：<a href="https://www.naifeistation.com?invite=3wLPME">星际放映厅</a>
 
 * 星际放映厅官网：<a href="https://www.naifeistation.com?invite=3wLPME">https://www.naifeistation.com?invite=3wLPME</a>
@@ -80,6 +84,10 @@ YouTube Premium的官方价格确实不便宜。以美区为例，个人会员�
 虽然成立时间不长，但星际放映厅在服务稳定性方面的表现令人满意。用户反馈显示，平台提供的账号很少出现无法使用的情况，而且客服响应迅速，能够及时解决出现的各种问题。平台也十分注重用户隐私保护，采取了有效措施确保用户的个人信息安全。
 
 对于那些希望以低价获取YouTube Premium服务，并且主要使用美区或港区账号的用户来说，星际放映厅是一个值得考虑的选择。每月仅需12元（使用优惠码后）就能享受完整的YouTube Premium体验，包括无广告观看、后台播放和视频下载等所有会员功能，同时还有专业的客服团队提供支持，性价比非常高。
+
+<p align="center"><a href="https://www.naifeistation.com?invite=3wLPME">前往星际放映厅官网</a></p>
+
+****
 
 ## 各大YouTube拼车平台对比
 
