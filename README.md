@@ -57,7 +57,7 @@ YouTube Premium的官方价格确实不便宜。以美区为例，个人会员�
 
 在售后服务方面，银河录像局提供24小时在线客服支持，无论你是在注册过程中遇到问题，还是使用过程中出现任何困难，都能及时得到解答和帮助。这一点对于很多第一次尝试合租服务的用户来说特别重要，因为有些技术细节可能需要专业人员的指导。
 
-除了YouTube Premium合租外，银河录像局的服务范围非常广泛。在流媒体方面，他们还提供Netflix、HBO Max、Prime Video、TV伴侣、Spotify和Disney+等多种热门流媒体的合租服务。如果你是AI工具的爱好者或专业用户，他们还提供ChatGPT Plus、Midjourney、Claude Pro、Runway等AI工具的合租。值得注意的是，银河录像局提供的ChatGPT Plus镜像版支持未降智的ChatGPT Plus、满血版DeepSeek-R1、马斯克Grok-3、谷歌Gemini-2 Pro等。此外，对于办公和学习需求，平台还提供Office365、Adobe团队版全家桶、多邻国Plus和Luma等服务的合租选项。这意味着你可以在一个平台上满足几乎所有数字服务的合租需求，非常方便。
+除了YouTube Premium合租外，银河录像局的服务范围非常广泛。在流媒体方面，他们还提供Netflix、HBO Max、Prime Video、TV伴侣、Spotify和Disney+等多种热门流媒体的合租服务。对于AI工具的爱好者或专业用户，他们提供ChatGPT Plus、Midjourney、Claude Pro、Runway等AI工具的合租。值得注意的是，银河录像局提供的ChatGPT Plus镜像版支持未降智的ChatGPT Plus、**满血版DeepSeek-R1**、马斯克Grok-3、谷歌Gemini-2 Pro等。此外，对于办公和学习需求，平台还提供Office365、Adobe团队版全家桶、多邻国Plus和Luma等服务的合租选项。这意味着你可以在一个平台上满足几乎所有数字服务的合租需求，非常便捷。
 
 最重要的是，银河录像局在安全性方面表现出色。很多用户担心合租会导致账号被封或个人隐私泄露，但银河录像局采用了严格的账号管理制度和技术措施，确保每个用户的使用体验和账号安全。根据用户反馈，使用他们的服务几乎没有发生过账号被封或隐私泄露的情况，这对于在意账号安全的用户来说是一个非常大的优势。
 
