@@ -1,6 +1,6 @@
 # 最新YouTube Premium合租指南：2025年油管Youtube家庭会员拼车平台推荐！如何以每月12元的价格购买YouTube Premium无广告会员？
 
-<p align="center">最近更新于：2025年3月1日</p>
+<p align="center">最近更新于：2025年3月10日</p>
 
 YouTube作为全球最大的视频分享平台，每天为数十亿用户提供海量的视频内容，包括音乐、电影、游戏、教育和生活等各个领域。然而，使用普通的免费版YouTube时，我们常常会被频繁的广告打断观看体验，而且无法进行后台播放和离线下载，这对于重度用户来说非常不便。但当你升级成为YouTube Premium会员后，就可以享受无广告观看体验、后台播放功能、视频离线下载、YouTube Music会员权益等众多高级功能。
 
@@ -366,6 +366,8 @@ Youtube Premium合租后的退款政策因平台而异，整体来说比较严�
 * <a href="https://github.com/anyofai/poe">Poe订阅</a>：本文将手把手地教大家如何快速获取一张野卡虚拟信用卡，并使用该卡为Poe充值。而且，本Poe订阅教程经过亲测，真实有效且安全可靠，整个Poe购买流程最快仅需十五分钟即可完成。
 
 * <a href="https://github.com/anyofai/onlyfans">OnlyFans订阅</a>：Onlyfans怎样玩？中国人怎么用OnlyFans？Onlyfans官网是哪个？如何注册Onlyfans帐号？国内如何订阅Onlyfans呢？接下来本文将为你详细解答这些问题。
+
+* <a href="https://github.com/anyofai/x-twitter">Twitter X Premium订阅</a>：国内用户如何通过订阅X Premium、Premium+或SuperGrok等方式来使用Grok 3？以及国内如何白嫖Grok API每月150美元的免费额度？
 
 * <a href="https://github.com/anyofai/chatgpt">ChatGPT注册</a>：本文将手把手教你如何在中国大陆完成ChatGPT帐号注册和ChatGPT Plus会员升级。整个过程简单明了，而且无需手机验证，只需五分钟即可完成所有操作。
 
