@@ -72,7 +72,7 @@ YouTube作为全球最大的视频分享平台，每天为数十亿用户提供�
 
 众所周知，YouTube Premium提供一个月的免费试用期，你可以利用这个试用期来免费白嫖YouTube会员，在试用期结束前取消订阅，这样就能免费享受一个月的会员服务！但也正如我们前文所述，国内支付宝、微信和信用卡通常无法用于订阅YouTube会员，而海外虚拟信用卡则可以完美解决这个问题。在众多海外虚拟信用卡中，WildCard野卡是最安全、最简单易用且最便宜的选择。
 
-WildCard野卡官网：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a> （使用邀请码"ANYOFAI"开卡费立减1美金）
+* WildCard野卡官网：<a href="https://yeka.ai/i/ANYOFAI">https://yeka.ai/i/ANYOFAI</a> （使用邀请码"ANYOFAI"开卡费立减1美金）
 
 与市面上其他虚拟信用卡相比，WildCard野卡具有以下优势：零门槛办理、无需实名认证（无KYC认证）、一分钟开卡、支持支付宝（人民币）充值、没有月租和管理费、卡内余额可随时提现，并且支持一键订阅ChatGPT Plus、Midjourney、Poe、Claude Pro等各类海外平台。我们已使用WildCard野卡虚拟信用卡大半年了，非常安全稳定，绝对值得信赖。更多详情请查看：<a href="https://anyofai.github.io/">WildCard野卡怎么样</a>！
 
