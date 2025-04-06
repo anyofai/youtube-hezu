@@ -1,6 +1,6 @@
 # 最新YouTube Premium合租指南：2025年油管Youtube家庭会员拼车平台推荐！如何以每月12元的价格购买YouTube Premium无广告会员？
 
-<p align="center">最近更新于：2025年3月25日</p>
+<p align="center">最近更新于：2025年4月6日</p>
 
 ![最新YouTube Premium合租指南：2025年油管Youtube家庭会员拼车平台推荐！如何以每月12元的价格购买YouTube Premium无广告会员？](https://github.com/anyofai/youtube-premium/blob/main/image/youtube-premium-3.png)
 
