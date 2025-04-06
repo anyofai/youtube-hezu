@@ -80,17 +80,23 @@ OK，当我们成功获取到了WildCard野卡虚拟信用卡之后，接下来�
 
 ### 第一步：打开YouTube官网，使用Google账号登录。
 
+![YouTube Premium合租指南 - 免费白嫖YouTube会员第一步：打开YouTube官网，使用Google账号登录](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/Youtube-hezu-1.png)
 
 ### 第二步：点击右上角的个人头像，并选择"购买内容和会员"。
 
+![YouTube Premium合租指南 - 免费白嫖YouTube会员第二步：点击右上角的个人头像，并选择"购买内容和会员"](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/Youtube-hezu-2.png)
 
 ### 第三步：点击"免费试订"按钮。
 
+![YouTube Premium合租指南 - 免费白嫖YouTube会员第三步：点击"免费试订"按钮](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/Youtube-hezu-3.png)
 
 ### 第四步：选择"个人月付"并点击"免费试订"按钮。
 
+![YouTube Premium合租指南 - 免费白嫖YouTube会员第四步：选择"个人月付"并点击"免费试订"按钮](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/Youtube-hezu-4.png)
 
 ### 第五步：添加WildCard野卡信息并点击"开始试用1个月"按钮。
+
+![YouTube Premium合租指南 - 免费白嫖YouTube会员第五步：添加WildCard野卡信息并点击"开始试用1个月"按钮](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/Youtube-hezu-5.png)
 
 注意：请记得及时取消YouTube自动续费。这样，当免费期结束时，YouTube不会从你的卡中扣款。通过这种方法，你可以免费白嫖一个月的YouTube Premium会员。
 
