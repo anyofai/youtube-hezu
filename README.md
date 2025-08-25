@@ -1,8 +1,8 @@
-# 油管YouTube合租指南：2025年最佳Youtube家庭会员拼车平台推荐（15元/月）！
+# 油管YouTube合租指南：2025年最佳Youtube家庭会员拼车平台推荐（15元/月）
 
 <p align="center">最近更新于：2025年8月26日</p>
 
-![油管YouTube合租指南：2025年最佳Youtube家庭会员拼车平台推荐（15元/月）！](https://github.com/anyofai/youtube-premium/blob/main/image/youtube-premium-3.png)
+![油管YouTube合租指南：2025年最佳Youtube家庭会员拼车平台推荐（15元/月）](https://github.com/anyofai/youtube-premium/blob/main/image/youtube-premium-3.png)
 
 YouTube作为全球最大的视频分享平台，每天为数十亿用户提供海量的视频内容，包括音乐、电影、游戏、教育和生活等各个领域。然而，使用普通的免费版YouTube时，我们常常会被频繁的广告打断观看体验，而且无法进行后台播放和离线下载，这对于重度用户来说非常不便。但当你升级成为YouTube Premium会员后，就可以享受无广告观看体验、后台播放功能、视频离线下载、YouTube Music会员权益等众多高级功能。
 
