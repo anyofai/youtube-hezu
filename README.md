@@ -8,7 +8,7 @@
 
 目前市面上存在大量提供YouTube Premium合租服务的平台，这些平台在价格、稳定性和售后支持方面都有明显差异，所以很多第一次接触油管合租的新手用户往往会觉得难以抉择。为了帮助大家更快地了解情况并避免踩坑，我们整理了2025年几家主流的YouTube Premium合租平台，并且对它们的价格、服务模式和实际使用体验进行了对比，同时也针对常见问题准备了清晰的解答。通过阅读这篇文章，用户能够全面了解YouTube Premium合租的基本情况，并且找到最适合自己的订阅方式。
 
-**重要提示**：由于政策限制，国行苹果手机无法直接在App Store中下载YouTube客户端。如果你想在苹果手机上安装YouTube客户端，可以通过<a href="https://nf.video/BTgSc">银河录像局</a>获取一个**美区Apple ID账号**，然后使用该美区Apple ID账号登录App Store，就能够自由下载并安装YouTube客户端了。
+**重要提示**：由于政策限制，国行苹果手机无法直接在App Store中**下载YouTube客户端**。如果你想在苹果手机上安装YouTube客户端，可以通过<a href="https://nf.video/BTgSc">银河录像局</a>获取一个**美区Apple ID账号**，然后使用该美区Apple ID账号登录App Store，就能够自由下载并安装YouTube客户端了。
 
 ## 2025年最靠谱的YouTube Premium合租平台推荐
 
