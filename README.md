@@ -1,6 +1,6 @@
 # 油管YouTube合租指南：2025年最靠谱的Youtube家庭会员拼车平台推荐！每月仅需15元！
 
-<p align="center">最近更新于：2025年9月17日</p>
+<p align="center">最近更新于：2025年9月27日</p>
 
 ![油管YouTube合租指南：2025年最靠谱Youtube家庭会员拼车平台推荐！每月仅需15元！](https://github.com/anyofai/youtube-premium/blob/main/image/youtube-premium-3.png)
 
