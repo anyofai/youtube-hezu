@@ -37,7 +37,7 @@
 
 <p align="center"><a href="https://nf.video/BTgSc">前往银河录像局官网</a></p>
 
-小提示：银河录像局还提供<a href="https://github.com/anyofai/chatgpt">ChatGPT账号购买</a>（9元/个）、<a href="https://github.com/anyofai/anyofai.github.io">ChatGPT Plus账号购买</a>（158元/月）、<a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>（27元/月）、<a href="https://github.com/anyofai/chatgpt-plus-recharge">ChatGPT Plus代充值</a>（166元/月）、<a href="https://github.com/anyofai/netflix-hezu">Netflix合租</a>（27元/月）等服务！
+小提示：银河录像局还提供<a href="https://github.com/anyofai/chatgpt">ChatGPT账号购买</a>（9元/个）、<a href="https://github.com/anyofai/anyofai.github.io">ChatGPT Plus账号购买</a>（158元/月）、<a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus合租</a>（27元/月）、<a href="https://github.com/anyofai/chatgpt-plus-recharge">ChatGPT Plus代充值</a>（174元/月）、<a href="https://github.com/anyofai/netflix-hezu">Netflix合租</a>（27元/月）等服务！
 
 ****
 
