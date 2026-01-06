@@ -16,7 +16,7 @@
 
 ### 一、Youtube油管合租首选：<a href="https://www.naifeistation.com/i/3wLPME">星际放映厅</a>
 
-![最靠谱的YouTube Premium合租平台推荐-Youtube油管合租备选：星际放映厅](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/Youtube%E5%90%88%E7%A7%9F-%E6%98%9F%E9%99%85%E6%94%BE%E6%98%A0%E5%8E%85.png)
+![Youtube油管合租首选：星际放映厅](https://raw.githubusercontent.com/anyofai/youtube-hezu/refs/heads/main/image/Youtube%E5%90%88%E7%A7%9F-%E6%98%9F%E9%99%85%E6%94%BE%E6%98%A0%E5%8E%85-1.png)
 
 * 星际放映厅官网：<a href="https://www.naifeistation.com/i/3wLPME">https://www.naifeistation.com/i/3wLPME</a>
 * 星际放映厅支付方式：支付宝
@@ -41,7 +41,7 @@
 
 ### 二、Youtube油管合租备选：<a href="https://nf.video/BTgSc">银河录像局</a>
 
-![最靠谱的YouTube Premium合租平台推荐-Youtube油管合租首选：银河录像局](https://raw.githubusercontent.com/anyofai/youtube-premium/refs/heads/main/image/Youtube%E5%90%88%E7%A7%9F-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80.png)
+![Youtube油管合租备选：银河录像局](https://raw.githubusercontent.com/anyofai/youtube-hezu/refs/heads/main/image/Youtube%E5%90%88%E7%A7%9F-%E9%93%B6%E6%B2%B3%E5%BD%95%E5%83%8F%E5%B1%80-1.png)
 
 * 银河录像局官网：<a href="https://nf.video/BTgSc">https://nf.video/BTgSc</a>
 * 银河录像局支付方式：支付宝
@@ -68,6 +68,8 @@
 
 ### 三、YouTube油管合租替补：<a href="https://spotifyzc.com/?incode=anyofai">飞行派</a>
 
+![YouTube油管合租替补：飞行派](https://raw.githubusercontent.com/anyofai/youtube-hezu/refs/heads/main/image/Youtube%E5%90%88%E7%A7%9F-%E9%A3%9E%E8%A1%8C%E6%B4%BE-1.png)
+
 飞行派成立于2022年，是一家以流媒体会员合租服务为核心的平台，业务覆盖YouTube、Netflix、Spotify等主流海外流媒体，同时也提供多种AI工具和数字会员相关服务。截至目前，飞行派已稳定运营6年以上，累计上车人次超过100万，售后社群规模超过7万人，整体属于运营时间较长、用户体量较大的合租平台。
 
 在YouTube合租业务方面，飞行派目前提供的是YouTube Premium美区家庭会员年付方案，价格为309元/年。该方案通过家庭会员形式分配车位，功能与官方YouTube Premium保持一致，包含无广告观看、后台播放、视频下载以及YouTube Music等核心权益。该套餐为一年期方案，适合希望一次性购买一年、对使用流程要求清晰，并且更看重平台稳定性和售后保障的用户。
@@ -79,6 +81,8 @@
 ****
 
 ### 四、YouTube油管合租替补：<a href="https://ihezu.fans/Xjg2aU">奈飞小铺</a>
+
+![YouTube油管合租替补：奈飞小铺](https://raw.githubusercontent.com/anyofai/youtube-hezu/refs/heads/main/image/Youtube%E5%90%88%E7%A7%9F-%E5%A5%88%E9%A3%9E%E5%B0%8F%E9%93%BA-1.png)
 
 奈飞小铺也是一家以流媒体订阅服务为主的平台，整体风格更偏向“账号型电商”。奈飞小铺在商品页面中会明确标注车位类型、套餐周期以及交付方式，规则相对清晰，适合对账号使用形式和使用周期有明确要求的用户。奈飞小铺在流媒体合租领域的运营时间较长，服务流程相对成熟，其主要特点是以个人车位为主、规则说明明确，在账号交付和使用指引方面也较为直观。
 
