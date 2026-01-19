@@ -1,6 +1,6 @@
 # 2026年最新油管YouTube合租指南：最靠谱的Youtube家庭会员拼车平台推荐！
 
-<p align="center">最近更新于：2026年1月13日</p>
+<p align="center">最近更新于：2026年1月19日</p>
 
 ![最新油管YouTube合租指南：最靠谱的Youtube家庭会员拼车平台推荐！](https://github.com/anyofai/youtube-premium/blob/main/image/youtube-premium-3.png)
 
@@ -35,7 +35,7 @@
 
 <p align="center"><a href="https://www.naifeistation.com/i/3wLPME">前往星际放映厅官网</a></p>
 
-小提示：星际放映厅也提供<a href="https://github.com/anyofai/chatgpt-plus-hezu">ChatGPT Plus拼车</a>、<a href="https://github.com/anyofai/netflix-hezu">奈飞合租</a>、<a href="https://github.com/anyofai/claude-pro">Claude Pro账号购买</a>、<a href="https://github.com/anyofai/claude-pro-hezu">Claude Pro合租</a>以及<a href="https://github.com/anyofai/claude-pro-recharge">Claude Pro代充值</a>等服务！
+星际放映厅也提供<a href="https://github.com/anyofai/netflix-hezu">奈飞合租</a>、<a href="https://github.com/anyofai/claude-pro">Claude账号购买</a>、<a href="https://github.com/anyofai/claude-pro-hezu">Claude拼车</a>、<a href="https://github.com/anyofai/claude-pro-recharge">Claude Pro代充值</a>等服务！
 
 ****
 
