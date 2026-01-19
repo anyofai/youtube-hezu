@@ -35,7 +35,7 @@
 
 <p align="center"><a href="https://www.naifeistation.com/i/3wLPME">前往星际放映厅官网</a></p>
 
-小提示：除了可以合租youTube之外，星际放映厅也提供<a href="https://github.com/anyofai/netflix-hezu">奈飞合租</a>、<a href="https://github.com/anyofai/claude-pro">Claude账号购买</a>、<a href="https://github.com/anyofai/claude-pro-hezu">Claude拼车</a>、<a href="https://github.com/anyofai/claude-pro-recharge">Claude Pro代充值</a>等服务！
+小提示：星际放映厅也提供<a href="https://github.com/anyofai/netflix-hezu">奈飞合租</a>、<a href="https://github.com/anyofai/claude-pro">Claude账号购买</a>、<a href="https://github.com/anyofai/claude-pro-hezu">Claude拼车</a>、<a href="https://github.com/anyofai/claude-pro-recharge">Claude Pro代充值</a>等服务！
 
 ****
 
